@@ -19,9 +19,10 @@
 # *Compose*
 
 >### Genre: n/a
->### Topic: n/a
+>### Topic: the world happens to us but the self defines the self.
 
 Cricket goes to town. Cricket buys some apples. Cricket goes to the pastures. Cricket feeds apple slices to the ostrich. Cricket returns home. Cricket goes to bed. Cricket dreams: of the prince leaving his father's palace to eat at Denny's because they'll give out a free breakfast on birthdays. Cricket wakes up: puts on her bra then takes it off and dresses without it. Cricket has coffee and asks big questions. Is Cricket really Cricket? How can Cricket tell? The ostrich could be the real Cricket, for all Cricket knows. But no, the ostrich's name is Geraldine.
 
 Geraldine wakes up before dawn. Geraldine walks the perimeter of her fenced area. Geraldine anticipates the highlight of her day will be seeing Cricket. Geraldine itches her knees on her favorite metal gate-latch. Geraldine fears Cricket will not appear before noon. Geraldine worries: Is Geraldine ever going to see Cricket again? How can Geraldine be sure that Cricket is okay? Geraldine is an ostrich of action. Today Geraldine must bring apples to Cricket.
 
+I am the original, considers Cricket. She considers this, and does not know it, because the world does not make sense. I am the original. An affirmation. Hesitant. When Cricket puts her boots on to walk to town, her boots instead take her west, toward the ocean. It is not a very nice day today. Certianly not a day for the beach. Why are we going to the beach, asks Cricket of her boots. 
