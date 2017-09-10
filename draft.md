@@ -14,6 +14,7 @@
     - [confluence](http://www.dictionary.com/browse/confluence?s=t)
     - [spindle](http://www.dictionary.com/browse/spindle?s=t)
     - [ostrich](https://en.wikipedia.org/wiki/Common_ostrich)
+   
     
 
 # *Compose*
@@ -27,4 +28,16 @@ Geraldine wakes up before dawn. Geraldine walks the perimeter of her fenced area
 
 I am the original, considers Cricket. She considers this, and does not know it, because the world does not make sense. I am the original. An affirmation. Hesitant. When Cricket puts her boots on to walk to town, her boots instead take her west, toward the ocean. It is not a very nice day today. Certianly not a day for the beach. Why are we going to the beach, asks Cricket of her boots. They are blue, worn rubber boots. They were her father's when he was younger, and when she puts them on she feels an echo in the gap left in the toes. We are going to splash around until you cheer up, said the boots to Cricket. And off they march.
 
-At the beach, which is a good hour's trudge from Cricket's home near town, the boots stop at a driftwood log not far from the water. The sand is white. Cricket sits and asks big questions. Is Cricket really Cricket? How can Cricket tell? These boots could be the real Cricket, for all Cricket knows. But no, the boots are just boots. Stop getting existential! cries the boots. There's time for that when you're old. 
+At the beach, which is a good hour's trudge from Cricket's home near town, the boots stop at a driftwood log not far from the water. The sand is white. Cricket sits and asks big questions. Is Cricket really Cricket? How can Cricket tell? These boots could be the real Cricket, for all Cricket knows. But no, the boots are just boots. Stop getting existential! cry the boots. There's time for that when you're old. 
+
+Affirmation: Cricket lives in a town near the sea. She has 2 (two) friends: An ostrich, and David the Fruit Vendor Who Looks Like an Old Tomato. She has a brother in America who is four years older than her who's name is John. Cricket's parents don't speak to her much any more. John sends an email at least once a month.
+
+# *Sketch*
+
+>Cricket steals a small seaplane and flies north from New Zealand to Japan, in protest of dormancy. She takes Geraldine, her friend who is an ostrich. Along the way, Cricket meets people who help her reshape her outlook on life. But not everything works out in her favour. At some point, she is forced to leave Geraldine behind, who is wise and accepts Cricket more than anyone. Eventually, Cricket, who is of course by now an internationally wanted person, is caught by the police and faces a jury.
+
+- While elements of surrealism may occasionally birth major plot points, everything outside of Cricket's perception/world is normal. She is not insane. Her unusual view of the world (and the tone of this fictional story) is derived from the arbitrary nature of the universe. Everything in our reality has a function (except, arguably, mosquitos).
+
+- The repetitive sentence structure should probably be revised at some point. It is an experiment.
+- Choose to draw on actual experience of flying small aircraft or craft Cricket's knowledge of it as if she flies by instinct.
+- Choose to extend surrealism to Geraldine's point of view, or have Geraldine be more sensible (leaning to the latter).
