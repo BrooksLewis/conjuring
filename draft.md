@@ -1,6 +1,6 @@
 # My Draft
 
-[guide on those topics](https://help.github.com/articles/basic-writing-and-formatting-syntax/).
+[basic writing and formatting syntax](https://help.github.com/articles/basic-writing-and-formatting-syntax/).
 
 # Assignment Notes
 
