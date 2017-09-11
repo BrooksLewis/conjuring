@@ -41,3 +41,5 @@ Affirmation: Cricket lives in a town near the sea. She has 2 (two) friends: An o
 - The repetitive sentence structure should probably be revised at some point. It is an experiment.
 - Choose to draw on actual experience of flying small aircraft or craft Cricket's knowledge of it as if she flies by instinct.
 - Choose to extend surrealism to Geraldine's point of view, or have Geraldine be more sensible (leaning to the latter).
+
+read the next day and am probably going to start afresh. 
