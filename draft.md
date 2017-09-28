@@ -45,3 +45,9 @@ At the beach, which is a good hour's trudge from Cricket's home near town, the b
 - Choose to extend surrealism to Geraldine's point of view, or have Geraldine be more sensible (leaning to the latter).
 
 read the next day and am probably going to start afresh. I wasn't thinking clearly. I don't normally write like this (transparancy). It's difficult.
+
+Update: None of that matters.
+
+# *Toss the above, I've had time to think. I'll write about myself.*
+
+The Coalition of Seven Spirits in the Human Suit does not know how to dance, but they tap their foot to the music all the same. A slight bobbing of the head will portray engagement with the evening. Perhaps a gentle sway of the shoulders. The Coalition of Seven Spirits keeps their hands in their pants pockets, turns an extra button over between their thumb and forefinger. There is not much time left until it would be appropriate to leave. They could probably sneak out unnoticed.
