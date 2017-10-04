@@ -2,6 +2,8 @@
 
 [basic writing and formatting syntax](https://help.github.com/articles/basic-writing-and-formatting-syntax/).
 
+[The Destruction of Art: Iconoclasm and Vandalism Since the French Revolution](https://books.google.ca/books?id=60ba0VmXVM8C&pg=PA202&redir_esc=y#v=onepage&q&f=false)
+
 # *Remember*
 
 1. A walk at dawn.
@@ -53,3 +55,7 @@ Update: None of that matters.
 October starts with the deadliest mass shooting in US history. I'm not a journalist. I'm not even a regular non-fiction writer. But, for what feels like the first time, I am affected deeply by current events. I am disturbed. What moves someone to act so selfishly? I feel as though I need to get more understanding of why people do this, so I'm going to write about my research into mass murders throughout history. Stephen Paddock, the Las Vegas shooter, had no immediately visible reason to fire a storm of bullets onto an unsuspecting country music festival. Until the investigation is complete, I can only guess at his motivation... Yet I find I am less interested in Paddock's reason for his crimes: Like many mass shooters before him, the police only got to Paddock after he killed himself, which seems to imply he was afraid. Of what, I cannot be sure. The consequences of his actions? If so, why was it so important to go through with this at all? Perhaps he felt regret, or maybe he felt suicide was justice, or a sadistic denial of justice (even his death is offensive).
 
 I am bereft of emotion regarding the mass killings that have been etched into the canon of history. They are almost like fiction. But surely there are answers, lessons hidden in time: How are these types of murders possible? What are the catalysts? The warning signs? How can these murders be prevented, from a social point of view? I am of the opinon that civilians should not have access to military-grade weapons, such as assault rifles or machine guns, but these types of mass killings have surely occured before the advent of such weaponry, which suggests to me that the problem is not wholly political, but social as well.
+
+Laszlo Toth attacked the Pietà in 1972. He smashed off her arm at the elbow, broke her nose off, and chipped one of her eyes. He was never charged, because he appeared insane. He allegedly cried out "I am Jesus Christ, risen from the dead!" before vandalising the statue with a hammer. A direct comparison between Paddock and Toth only serves to lessen the magnitude of Paddock's crime-- instead, I am more interested in the motivation behind Toth's vandalism. Even if he truly was insane, I do not understand the selfishness behind Toth's actions. Accounts of Toth's brief trail describe how he charged the judge with the crime of 'pride', because they wanted to declare Christ [insane](https://books.google.ca/books?id=60ba0VmXVM8C&pg=PA202&redir_esc=y#v=onepage&q&f=false). 
+
+I see Toth as someone who raises himself above others. That he would proclaim himself to be Christ risen from the dead shows how he holds himself. Divine right or not, destroying a statue is a prideful act-- an irony that is central to my views about this seeming lack of empathy that Paddock and the countless other shooters demonstrate.
