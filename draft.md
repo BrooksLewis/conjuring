@@ -21,6 +21,8 @@ Thursday, September 14th, 2017.
     - [ostrich](https://en.wikipedia.org/wiki/Common_ostrich)
    
     
+# *Notes*
+Loosely braided essay format. Vegas, Art, and my walks through Penticton (ending with seagulls shitting on the bronze sculpture of children at Okanagan lake).
 
 # *Composition*
 
@@ -32,4 +34,6 @@ Laszlo Toth attacked the Pietà in 1972. He smashed off her arm at the elbow, br
 
 I see Toth as someone who raises himself above others. That he would proclaim himself to be Christ risen from the dead shows how he holds himself. Divine right or not, destroying a statue is a prideful act-- an irony that is central to my views about this seeming lack of empathy that Paddock and the countless other shooters demonstrate.
 
-The vandalism of art is to me quite a horrendous thing. 
+The vandalism of art is to me quite a horrendous thing.
+
+I walk at a brisk pace down Penticton side streets on a joyless afternoon. It's been raining all week. I was born in this city, it should feel like home, but does not. I'm here for the week to visit my Grandma, but I've taken the day to myself.
