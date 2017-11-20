@@ -60,8 +60,48 @@ We find the escalators to the top floor and wait in line to line up to use them.
 
 -
 
-Laszlo Toth attacked the Pietà in 1972. He smashed off her arm at the elbow, broke her nose off, and chipped one of her eyes. He was never charged, because he appeared insane. He allegedly cried out "I am Jesus Christ, risen from the dead!" before vandalising the statue with a hammer. A direct comparison between Paddock and Toth only serves to lessen the magnitude of Paddock's crime-- instead, I am more interested in the motivation behind Toth's vandalism. Even if he truly was insane, I do not understand the selfishness behind Toth's actions. Accounts of Toth's brief trail describe how he charged the judge with the crime of 'pride', because they wanted to declare Christ [insane](https://books.google.ca/books?id=60ba0VmXVM8C&pg=PA202&redir_esc=y#v=onepage&q&f=false). 
+Laszlo Toth attacked the Pietà in 1972. He smashed off her arm at the elbow, broke her nose off, and chipped one of her eyes. He was never charged, because he appeared insane. He allegedly cried out "I am Jesus Christ, risen from the dead!" before vandalising the statue with a hammer. Accounts of Toth's brief trail describe how he charged the judge with the crime of 'pride', because they wanted to declare Christ [insane](https://books.google.ca/books?id=60ba0VmXVM8C&pg=PA202&redir_esc=y#v=onepage&q&f=false). 
 
-I see Toth as someone who raises himself above others. That he would proclaim himself to be Christ risen from the dead shows how he holds himself. Divine right or not, destroying a statue is a prideful act-- an irony that is central to my views about this seeming lack of empathy that Paddock and the countless other shooters demonstrate.
+I see Toth as someone who raises himself above others. That he would proclaim himself to be Christ risen from the dead shows how he holds himself. Divine right or not, destroying a statue is a prideful act-- an irony that is central to my views about this seeming lack of empathy that countless mass murderers demonstrate.
 
 The vandalism of art is to me quite a horrendous thing.
+
+-
+
+I come back to the bronze children after buying a coffee and a bagel. The near by bench is wet but I sit on it anyways. As I settle in a seagull emerges from a cluster of large rocks and yips at me.
+
+"Did you do this?" I ask him, gesturing to the stained children.
+
+He walks and wobbles in a lateral way to avoid confronting me. Guilty. I rip off a piece of my bagel and toss it to him. I assume he's a *him*. Shitting on kids seems pretty masculine. Though, masculinity implies the concept of gender is useful to birds. Is it? I don't know.
+
+I'm only here for five minutes of contemplating avian sexuality before another bird swoops down to stand before me. A crow. I've always liked crows. I toss him part of my bagel too, but the seagull freaks out and steals it. The crow flies off. I write some crap about The Majesty of Flying Rats before I rip it out of my notebook, as seen in movies. But having no where to toss it without staining my conscience, I smooth the page back into its place in the notebook to remove again later.
+
+I've brought a book but don't feel like reading. I don't feel like doing anything, really. I just sit and imagine hours ooze by when really they remain before me. I imagine the children playing:
+
+The three children run in a circle, chasing each other. They've been out all day, even though Tommy, on the left, lets his asthma show through his gaping laughter.
+
+"My mom's making four-meat lasagna for dinner!" little Charlie tells his friends.
+
+"My mom's making fried rice!" replies young Theo.
+
+"I think it's make-your-own-dinner night tonight," adds Tommy, out of breath. "I'll probably have crackers and cheese. Hey, shouldn't we be getting back?"
+
+"The sun's still up!"
+
+"Yeah Tommy, the sun's up!"
+
+"But it's going down, isn't it?" says Tommy.
+
+"So?"
+
+"Yeah, so?"
+
+"My grandma told me if we stay out past dark the Ogopogo will come up and turn us--"
+
+"Your grandma's an alcoholic, Tommy!"
+
+"Yeah Tommy, she's dumb!"
+
+
+
+
