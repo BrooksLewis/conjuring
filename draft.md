@@ -25,7 +25,13 @@ Thursday, September 14th, 2017.
 # *Notes*
 Loosely braided essay format. Vegas, Art, and my walks through Penticton (ending with seagulls shitting on the bronze sculpture of children at Okanagan lake).
 
+Update: I'm opening things up. I'm writing about the idea of killing things rather than specifically the understanding of Stephen Paddock. I feel making my topic murkier will allow me to be more creative (I got tired of playing journalist).
+
 # *Composition*
+
+These are thoughts about killing.
+
+-
 
 I walk at a brisk pace down Penticton side streets on a joyless afternoon. It's been raining all week. I was born in this city, it should feel like home, but does not. I'm here for the week to visit my Grandma, but I've taken the day to myself.
 
@@ -36,6 +42,7 @@ On my walk, I wind north to Okanagan lake. The beach is usually empty on rainy d
 It's so big it looks like an ocean. The rain slows down, then stops. When I'm in this mood, I want rain. I want a great cathedral organ bellowing over the water and I want the waves to rise higher than my head. Instead I have a lack of wind, a caffeine headache, and wet socks. There's a bronze statue of three children playing right at the waterline on some rocks near a boardwalk. Bird shit, still glistening from rain, drips down from the faces of the children like tears. The birds have deliberate, precise aim.
 
 -
+
 October starts with the deadliest mass shooting in US history. I'm not a journalist. I'm not even a regular non-fiction writer. But, for what feels like the first time, I am affected deeply by current events. I am disturbed. What moves someone to act so selfishly? I feel as though I need to get more understanding of why people do this, so I'm going to write about my research into mass murders throughout history. Stephen Paddock, the Las Vegas shooter, had no immediately visible reason to fire a storm of bullets onto an unsuspecting country music festival. Until the investigation is complete, I can only guess at his motivation... Yet I find I am less interested in Paddock's reason for his crimes: Like many mass shooters before him, the police only got to Paddock after he killed himself, which seems to imply he was afraid. Of what, I cannot be sure. The consequences of his actions? If so, why was it so important to go through with this at all? Perhaps he felt regret, or maybe he felt suicide was justice, or a sadistic denial of justice (even his death is offensive).
 
 I am bereft of emotion regarding the mass killings that have been etched into the canon of history. They are almost like fiction. But surely there are answers, lessons hidden in time: How are these types of murders possible? What are the catalysts? The warning signs? How can these murders be prevented, from a social point of view? I am of the opinon that civilians should not have access to military-grade weapons, such as assault rifles or machine guns, but these types of mass killings have surely occured before the advent of such weaponry, which suggests to me that the problem is not wholly political, but social as well.
@@ -74,7 +81,7 @@ I come back to the bronze children after buying a coffee and a bagel. The near b
 
 He walks and wobbles in a lateral way to avoid confronting me. Guilty. I rip off a piece of my bagel and toss it to him. I assume he's a *him*. Shitting on kids seems pretty masculine. Though, masculinity implies the concept of gender is useful to birds. Is it? I don't know.
 
-I'm only here for five minutes of contemplating avian sexuality before another bird swoops down to stand before me. A crow. I've always liked crows. I toss him part of my bagel too, but the seagull freaks out and steals it. The crow flies off. I write some crap about The Majesty of Flying Rats before I rip it out of my notebook, as seen in movies. But having no where to toss it without staining my conscience, I smooth the page back into its place in the notebook to remove again later.
+I'm only here for five minutes of contemplating avian sexuality before another bird swoops down to stand before me. A crow. I've always liked crows. I toss him part of my bagel too, but the seagull freaks out and steals it. The crow flies off. I write some crap about The Majesty of Flying Rats but I rip it out of my notebook, as seen in movies. Having no where to toss it without staining my conscience, I smooth the page back into its place in the notebook to remove again later.
 
 I've brought a book but don't feel like reading. I don't feel like doing anything, really. I just sit and imagine hours ooze by when really they remain before me. I imagine the children playing:
 
@@ -96,12 +103,23 @@ The three children run in a circle, chasing each other. They've been out all day
 
 "Yeah, so?"
 
-"My grandma told me if we stay out past dark the Ogopogo will come up and turn us--"
+"My grandma told me if we stay out past dark the Ogopogo will come up and turn us into--"
 
 "Your grandma's an alcoholic, Tommy!"
 
 "Yeah Tommy, she's dumb!"
 
+Tommy tries to ignore this wound but knows he'll regret not standing up to Charlie and Theo when the sun sets and the Ogopogo raises its long scaled snout from the lake and blesses the boys with its Jurrasic breath, condeming them to bronze forever.
 
+-
 
+My brother accepts a vague asperger's diagnosis and told me once he could relate to psychopathic murderers. He has also told me he doesn't think he'll live past thirty. He's twenty-three. I am, as far as I know, his only friend.
 
+I do not think he has considered the fact that these are alarming statements. Since then, he's not recinded these comments but has told me that he thinks suicide is cowardly and "a real dick move to anyone left behind". This is the closest he's come to telling me he cares about me. 
+
+He doesn't see the point in communicating his feelings very often. I understand this, I've grown up with him. He's four years younger than me and I've seen him go from a joyful, cherubic toddler to a brooding adult with poor hygiene and a resentment for The System. He's unemployed.
+
+But behind his nearly unbreakable mask, he is gentle and caring. He is not a psychopath in the slightest. We were discussing one day, once I had come home from work, about the importances of empathy. He says:
+    The death penalty is immoral, revenge is immoral, there's no point to it. If there is a guy, like a serial killer cannibal rapist kind of guy, and he's caught, and sentanced to death, then we're no better than him. He should have a choice, he could live the rest of his life away from society, like in prison or banished or something, or he could choose suicide. But taking away his right to choose, his human rights, that's basically what he did when he killed people. So we're no better. We think we are but we're not. We're all high horse people. Revenge is not justice. And even justice is questionable. It's too negative in our society. There's too much bias. If a serial-- an 'evil' guy-- if he decides to kill someone then-- Ugh, look. Anyone can do anything they want. Sometimes there's repercussions. But in nature, like animals and stuff, well. I don't know. Look. A guy kills someone and gets away with it. Eventually, most people move on. Isn't that enough? If he's caught, he should be removed, because he's dangerous, but he shouldn't be removed from LIFE. That's immoral. A pitchfork mob can't turn murder into justice. That's immoral.
+   
+There are some issues I take up with this opinion of his, but I find it fascinating that he is so concerned with the morality of justice. Sometimes he gets talking and just can't stop, the floodgates open and he gets excited. But he tries very hard to never say anything if he doesn't mean it. I believe that his thoughts on morality are rooted in a deep empathy. 
