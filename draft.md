@@ -155,11 +155,43 @@ If I want to, I can go find a worm and split it in two. The police will not arre
 
 -
 
-The birds circle overhead now, but I've already parted out my entire bagel. One old seagull sits on the head of one of the bronze children. He looks me in the eye and, with little effort, shits down Tommy's cold metal neck.
+The birds circle overhead, but I've already parted out my entire bagel. One old seagull sits on the head of one of the bronze children. He looks me in the eye and, with little effort, shits down Tommy's cold metal neck.
 
 Probably, the birds do not understand that they are defacing a work of art. If I was a bird, I wouldn't care about that stuff. When is my next meal? Oh damn it, seven thousand flaps back to my nest. Am I molting a little early this year? I think so.
 
 Tommy's alcoholic grandma would scold him for getting so dirty, but the Ogopogo didn't think of that when he turned him to bronze. He just did, because he's the Ogopogo. I want to meet the Ogopogo, I want to interview him about his life and about why he makes the choices he does.
 
-The clouds darken and the wind swirls them into smokelike plumes, reaching down in mists to the rising waves. The birds, aware of their master's temperment, scatter, screaming out warnings like doomsday criers. From the water just before the bronze children rises the enormous head of the Ogopogo himself, his tongue snakes out of his mouth and his teeth reach out past his lips. He arches his spined back and pushes his head forward to me, only a few inches away, and says in an ancient din, "I'll take a few questions now."
+The clouds darken and the wind swirls them into smokelike plumes, reaching down in mists to the rising waves. The birds, aware of their master's temperment, scatter, screaming out warnings like doomsday criers. From the water just beyond the bronze children rises the enormous scaled bluegreen head of the Ogopogo himself; his tongue snakes out of his mouth and his sharp white teeth reach out past his lips. He arches his spined back, pushes his head forward to me, only a few inches away, and says in an ancient din, "I'll take a few questions now."
+
+B: So nice of you to agree to this interview, Ogopogo.
+
+O: I wasn't really doing anything else today.
+
+B: Why don't we start off by talking about your past?
+
+O: I don't dwell on history. I've been around a long time, but I see no point in keeping track of the past. If you find yourself holding a memory with you it is then laced with regret for not remaining in that moment, and life is better lived free of that.
+
+B: Okay. But surely you've got fond memories of your childhood?
+
+O: I was never a child. I was condemned by the spirits to this form after murdering Old Kan-He-Kan. My punishment for that has been to spend eternity in this lake, where I drowned him.
+
+B: Thank you for your honesty. Do you think about this often?
+
+O: No. I simply wander the waters alone. I have little use for sentimentality.
+
+B: You don't have any friends?
+
+O: No.
+
+B: Why did you turn these children to bronze?
+
+O: I did it on a whim. They were noisy. Now they are my silent subjects.
+
+B: So you see yourself as regal?
+
+O: Absolutely. I am at the top of the food chain. Come, human, test my wrath. See why I have earned this immortal form.
+
+B: No thank you. Just one last question. Don't you think killing humans is bad? Shouldn't someone stop you?
+
+The Ogopogo does not answer the final question. He raises his head high above me, bellows at the sky, and the clouds part to reveal a sunset sky. He withdraws to the depths, but as his head is swallowed by the lake once more, he turns back to me with a challenging gaze, *I dare you, try and stop me, I dare you*.
 
