@@ -29,9 +29,9 @@ Update: I'm opening things up. I'm writing about the idea of killing things rath
 
 # *Composition*
 
-These are thoughts about killing.
+## These Are Thoughts About Killing
 
--
+
 
 I walk at a brisk pace down Penticton side streets on a joyless afternoon. It's been raining all week. I was born in this city, it should feel like home, but does not. I'm here for the week to visit my Grandma, but I've taken the day to myself.
 
