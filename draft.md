@@ -43,9 +43,11 @@ It's so big it looks like an ocean. The rain slows down, then stops. When I'm in
 
 -
 
-October starts with the deadliest mass shooting in US history. I'm not a journalist. I'm not even a regular non-fiction writer. But, for what feels like the first time, I am affected deeply by current events. I am disturbed. What moves someone to act so selfishly? I feel as though I need to get more understanding of why people do this, so I'm going to write about my research into mass murders throughout history. Stephen Paddock, the Las Vegas shooter, had no immediately visible reason to fire a storm of bullets onto an unsuspecting country music festival. Until the investigation is complete, I can only guess at his motivation... Yet I find I am less interested in Paddock's reason for his crimes: Like many mass shooters before him, the police only got to Paddock after he killed himself, which seems to imply he was afraid. Of what, I cannot be sure. The consequences of his actions? If so, why was it so important to go through with this at all? Perhaps he felt regret, or maybe he felt suicide was justice, or a sadistic denial of justice (even his death is offensive).
+October starts with the deadliest mass shooting in US history. I'm not a journalist. But, for what feels like the first time, I am affected deeply by current events. I am disturbed. What moves someone to act so selfishly? Stephen Paddock, the Las Vegas shooter, had no immediately visible reason to fire a storm of bullets onto an unsuspecting country music festival. Until the investigation is complete, I can only guess at his motivation... Yet I find I am less interested in Paddock's reason for his crimes: Like many mass shooters before him, the police only got to Paddock after he killed himself, which seems to imply he was afraid. Of what, I cannot be sure. The consequences of his actions? If so, why was it so important to go through with this at all? Perhaps he felt regret, or maybe he felt suicide was justice, or a sadistic denial of justice (even his death is offensive).
 
-I am bereft of emotion regarding the mass killings that have been etched into the canon of history. They are almost like fiction. But surely there are answers, lessons hidden in time: How are these types of murders possible? What are the catalysts? The warning signs? How can these murders be prevented, from a social point of view? I am of the opinion that civilians should not have access to military-grade weapons, such as assault rifles or machine guns, but these types of mass killings have surely occurred before the advent of such weaponry, which suggests to me that the problem is not wholly political, but social as well.
+I am bereft of emotion regarding the mass killings that have been etched into the canon of history. They are almost like fiction. How are these types of murders possible? What are the catalysts? The warning signs? How can these murders be prevented, from a social point of view? I am of the opinion that civilians should not have access to military-grade weapons, such as assault rifles or machine guns, but these types of mass killings have surely occurred before the advent of such weaponry, which suggests to me that the problem is not wholly political, but social as well.
+
+I don't know what Stephen Paddock was thinking and that scares me. But what scares me more is my suspicion that he was simply acting under the Call of the Void. This is when you suddenly get the impulse to jump off the ledge you're standing on, to stab yourself while you chop vegetables, or to snap a toddler's neck. These are extremely alarming, taboo thoughts, but ninety nine times out of a hundred we dismiss the Call of the Void. It is that one person who responds to the Call that keeps me on edge whenever I meet someone new.
 
 -
 
@@ -67,9 +69,9 @@ We find the escalators to the top floor and wait in line to line up to use them.
 
 -
 
-Laszlo Toth attacked the Pietà in 1972. He smashed off her arm at the elbow, broke her nose off, and chipped one of her eyes. He was never charged, because he appeared insane. He allegedly cried out "I am Jesus Christ, risen from the dead!" before vandalising the statue with a hammer. Accounts of Toth's brief trail describe how he charged the judge with the crime of 'pride', because they wanted to declare Christ [insane](https://books.google.ca/books?id=60ba0VmXVM8C&pg=PA202&redir_esc=y#v=onepage&q&f=false). 
+Laszlo Toth attacked the Pietà in 1972. He smashed off her arm at the elbow, broke her nose off, and chipped one of her eyes. He was never charged, because he appeared insane. He allegedly cried out "I am Jesus Christ, risen from the dead!" before vandalising the statue with a hammer. Accounts of Toth's brief trial describe how *he* charged the judge with the crime of 'pride', because they wanted to declare Christ [insane](https://books.google.ca/books?id=60ba0VmXVM8C&pg=PA202&redir_esc=y#v=onepage&q&f=false). 
 
-I see Toth as someone who raises himself above others. That he would proclaim himself to be Christ risen from the dead shows how he holds himself. Divine right or not, destroying a statue is a prideful act-- an irony that is central to my views about this seeming lack of empathy that countless mass murderers demonstrate.
+I see Toth as someone who raises himself above others. That he would proclaim himself to be Christ risen from the dead shows how he holds himself. Divine right or not, destroying a statue is a prideful act-- an irony that is central to my views about this seeming lack of empathy that countless mass murderers demonstrate. He seems to consider himself so important, so above the common population that he has the right to act unto this beloved statue. This is not infrequent behaviour, however; many people I know, close friends even, probably even myself, all act with pride and selfishness at one time or another. But its Toth's claim of other-worldness that irks me. He implies that he sees the rest of the world as beneath him, by attacking the Pietà, because he has evaluated that he is allowed to do such a thing. I am not a christian, but that Toth uses the figurehead Christ as a scapegoat for being allowed to do whatever he wants is truly frustrating. I would rather he just own up to his own deeds. But I guess that way he wouldn't get away with it.
 
 The vandalism of art is to me quite a horrendous thing.
 
@@ -113,23 +115,23 @@ Tommy tries to ignore this wound but knows he'll regret not standing up to Charl
 
 -
 
-My brother accepts a vague asperger's diagnosis and told me once he could relate to psychopathic murderers. He has also told me he doesn't think he'll live past thirty. He's twenty-three. I am, as far as I know, his only friend.
+My brother accepts a vague asperger's diagnosis and told me once he could relate to psychopathic murderers. He has also told me he doesn't think he'll make it past thirty. He's twenty-three. I am, as far as I know, his only friend.
 
-I do not think he has considered the fact that these are alarming statements. Since then, he's not rescinded these comments but has told me that he thinks suicide is cowardly and "a real dick move to anyone left behind". This is the closest he's come to telling me he cares about me. 
+I do not think he has considered the fact that these are alarming statements. Since then, he's not rescinded these comments but has told me that he thinks suicide is cowardly and "a real dick move to anyone left behind". This is about the closest he comes to telling me he cares about me. 
 
 He doesn't see the point in communicating his feelings very often. I understand this, I've grown up with him. He's four years younger than me and I've seen him go from a joyful, cherubic toddler to a brooding adult with poor hygiene and a resentment for The System. He's unemployed.
 
-But behind his nearly unbreakable mask, he is gentle and caring. He is not a psychopath in the slightest. We were discussing one day, once I had come home from work, about the importances of empathy. He says:
+But behind his nearly unbreakable mask, he is gentle and caring. He is not a psychopathic. We were discussing one day, once I had come home from work, about the importances of empathy. He says:
     
    The death penalty is immoral, revenge is immoral, there's no point to it. If there is a guy, like a serial killer cannibal       rapist kind of guy, and he's caught, and sentenced to death, then we're no better than him. He should have a choice, he could live the rest of his life away from society, like in prison or banished or something, or he could choose suicide. But taking away his right to choose, his human rights, that's basically what he did when he killed people. So we're no better. We think we are but we're not. We're all high horse people. Revenge is not justice. And even justice is questionable. It's too negative in our society. There's too much bias. If a serial-- an 'evil' guy-- if he decides to kill someone then-- Ugh, look. Anyone can do anything they want. Sometimes there's repercussions. But in nature, like animals and stuff, well. I don't know. Look. A guy kills someone and gets away with it. Eventually, most people move on. Isn't that enough? If he's caught, he should be removed, because he's dangerous, but he shouldn't be removed from LIFE. That's immoral. A pitchfork mob can't turn murder into justice. That's immoral.
    
-There are some issues I take up with this opinion of his, but I find it fascinating that he is so concerned with the morality of justice. Sometimes he gets talking and just can't stop, the floodgates open and he gets excited. But he tries very hard to never say anything if he doesn't mean it. I believe that his thoughts on morality are rooted in a deep empathy. 
+There are some issues I take up with this opinion of his, but I find it fascinating that he is so concerned with the morality of justice. Sometimes he gets talking and just can't stop, the floodgates open and he gets excited. But he tries very hard to never say anything if he doesn't mean it. I believe that his thoughts on morality are rooted in a deep empathy. But he disguises this well.
 
 When he was a kid, I once saw him playing alone in the back yard. I approached him, only about eight years old myself, and watched what he was doing. He had a worm in his hands and he was pulling it in two.
 
-"You shouldn't kill bugs," I told him. "It's mean."
+"You shouldn't kill bugs," I tell him. "It's mean."
 
-"Worms are not bugs," he told me.
+"Worms are not bugs," he tells me.
 
 "Well you shouldn't kill worms."
 
@@ -137,15 +139,15 @@ When he was a kid, I once saw him playing alone in the back yard. I approached h
 
 "How do you know that?"
 
-"They keep moving. Look." He placed half a worm on the ground and we watched it writhe for a few moments.
+"They keep moving. Look." He places half a worm on the ground and we watch it writhe for a few moments.
 
-"Let's climb the cherry tree," I said.
+"Let's climb the cherry tree," I say.
 
 "There are worms that live in cherries and even other foods."
 
 "Oh."
 
-We spent the rest of the afternoon throwing ripe cherries at each other and when we were told to come inside we shouted at our mom, "We're worms and we live in the wild!"
+We spend the rest of the afternoon throwing ripe cherries at each other and when we are told to come inside we shout at our mother, "We're worms and we live in the wild!"
 
 "Little worms don't get pizza for dinner!" she called back. We both jumped out of the tree and raced inside, stained red from head to toe with cherry juice, worms left behind. When I went to sleep that night I had a nightmare about being buried alive, which followed me into adolescence.
 
@@ -159,9 +161,9 @@ The birds circle overhead, but I've already parted out my entire bagel. One old 
 
 Probably, the birds do not understand that they are defacing a work of art. If I was a bird, I wouldn't care about that stuff. When is my next meal? Oh damn it, seven thousand flaps back to my nest. Am I molting a little early this year? I think so.
 
-Tommy's alcoholic grandma would scold him for getting so dirty, but the Ogopogo didn't think of that when he turned him to bronze. He just did, because he's the Ogopogo. I want to meet the Ogopogo, I want to interview him about his life and about why he makes the choices he does.
+Tommy's alcoholic grandma would scold him for getting so dirty, but the Ogopogo didn't think of that when he turned him to bronze. He just did, because he's cold blooded, he's the Ogopogo. I want to meet the Ogopogo, I want to interview him about his life and about why he makes the choices he does.
 
-The clouds darken and the wind swirls them into smokelike plumes, reaching down in mists to the rising waves. The birds, aware of their master's temperment, scatter, screaming out warnings like doomsday criers. From the water just beyond the bronze children rises the enormous scaled bluegreen head of the Ogopogo himself; his tongue snakes out of his mouth and his sharp white teeth reach out past his lips. He arches his spined back, pushes his head forward to me, only a few inches away, and says in an ancient din, "I'll take a few questions now."
+The clouds darken and the wind swirls them into smokelike plumes, reaching down in mists to the rising waves. The birds, aware of their master's temperment, scatter, screaming out warnings like doomsday criers. From the water just beyond the bronze children rises the enormous scaled bluegreen head of the Ogopogo himself; his forked tongue snakes out of his mouth and his sharp white teeth reach out past his lips. He arches his spined back, pushes his head forward to me, only a few inches away, and says in an ancient din, "I'll take a few questions now."
 
 B: So nice of you to agree to this interview, Ogopogo.
 
@@ -193,5 +195,12 @@ O: Absolutely. I am at the top of the food chain. Come, human, test my wrath. Se
 
 B: No thank you. Just one last question. Don't you think killing humans is bad? Shouldn't someone stop you?
 
-The Ogopogo does not answer the final question. He raises his head high above me, bellows at the sky, and the clouds part to reveal a sunset sky. He withdraws to the depths, but as his head is swallowed by the lake once more, he turns back to me with a challenging gaze, *I dare you, try and stop me, I dare you*.
+The Ogopogo does not answer the final question. He raises his head high above me, bellows at the sky, and the clouds part to reveal a sunset. He withdraws to the depths, but as his head is swallowed by the lake once more, he turns back to me with a challenging gaze, *I dare you, try and stop me, I dare you*.
 
+-
+
+In this age, where postmodernism extends to the hipster photographing the process of photographing paintings, or to the lunatic destroying statues to get closer to purity, or to the writer adapting another culture's regional folklore to create a discourse, or to the writer referring to himself in an analysis of postmodernism, I find I am wary of what art can become. Is postmodernism murder? Are we killing whatever we rehash, reuse, or adapt? Or maybe, in the case of the MoMA hipster, postmodernism is innocent (though annoying) and inescapable-- Now that I've written about him I've further extended the postmodern flow-chart.
+
+A murderer kills for any number of reasons, but the fact remains that their victim has been killed. Nothing else really matters. Catching the criminal, preventing further murders; these are separate problems. The destruction of life is not dissimilar to the destruction of the Pietà, or the birds unknowingly defacing the bronze children. Something that was once whole has since been changed. Its meaning has been altered. A woman becomes a victim. A body becomes a corpse. This is social, artistic entropy. Particles are fleeing their clusters like mad. We are breaking down.
+
+I want to end on a positive note but cannot find one. After all, what is positive about our current state? [In 2002, the World Health Organization stated that one person is murdered every sixty seconds](https://www.cbsnews.com/news/a-murder-a-minute/). There are threats of nuclear war looming on the horizon. Prejudice fuels killing sprees and reinforces the backbone of every major conflict since the dawn of humanity. Bombs are going off in the subway-- and yet, most of us keep walking around above ground, none the wiser. The distance we keep between us disguises the ugliness that resides within our society. The next Las Vegas, Orlando, or Ferguson disaster is waiting to spring forward like an earthquake.
