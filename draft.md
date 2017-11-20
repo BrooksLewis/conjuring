@@ -147,10 +147,19 @@ When he was a kid, I once saw him playing alone in the back yard. I approached h
 
 We spent the rest of the afternoon throwing ripe cherries at each other and when we were told to come inside we shouted at our mom, "We're worms and we live in the wild!"
 
-"Little worms don't get pizza for dinner!" she called back. We both jumped out of the tree and raced inside, stained red from head to toe with cherry juice, worms left behind.
+"Little worms don't get pizza for dinner!" she called back. We both jumped out of the tree and raced inside, stained red from head to toe with cherry juice, worms left behind. When I went to sleep that night I had a nightmare about being buried alive, which followed me into adolescence.
 
-When I went to sleep that night I had a nightmare about being buried alive, which followed me into adolescence. Worms don't just become more worms. They keep writhing and sometimes regnerate because they have five hearts. The segment of the worm that includes the head may regenerate, but the rest of its body will wither, and eventually die.
+Now I know that worms don't just become more worms. They keep writhing and sometimes regnerate because they have five hearts. The segment of the worm that includes the head may regenerate, but the rest of its body will wither, and eventually die.
 
-If I want to, I can go find a worm and split it in two. The police will not arrest me. Animal rights activists will not accuse me. Beyond the fabled Butterfly Effect, there are no immediate repercussions for killing a worm, or a fly, or a spider. At what height and weight do animals start to seem real? Then again, if I kill a deer, I am then a hunter and that is okay, as long as I am registered and approved. But if I kill a Golden Retriever, there would be an outrage. Because of this very human sense of how much killing is okay, I think what determines if a killing is okay or not is if it is conducted in *cold blood*.
+If I want to, I can go find a worm and split it in two. The police will not arrest me. Animal rights activists will not accuse me. Beyond the fabled Butterfly Effect, there are no immediate repercussions for killing a worm, or a fly, or a spider. At what height and weight do animals start to seem real? Then again, if I kill a deer, I am then a hunter and that is okay, as long as I am registered and approved. But if I kill a Golden Retriever, there would be an outrage. Because of this very human sense of what kind of killing is acceptable, I think what determines if a killing is okay or not is if it is conducted in *cold blood*.
 
+-
+
+The birds circle overhead now, but I've already parted out my entire bagel. One old seagull sits on the head of one of the bronze children. He looks me in the eye and, with little effort, shits down Tommy's cold metal neck.
+
+Probably, the birds do not understand that they are defacing a work of art. If I was a bird, I wouldn't care about that stuff. When is my next meal? Oh damn it, seven thousand flaps back to my nest. Am I molting a little early this year? I think so.
+
+Tommy's alcoholic grandma would scold him for getting so dirty, but the Ogopogo didn't think of that when he turned him to bronze. He just did, because he's the Ogopogo. I want to meet the Ogopogo, I want to interview him about his life and about why he makes the choices he does.
+
+The clouds darken and the wind swirls them into smokelike plumes, reaching down in mists to the rising waves. The birds, aware of their master's temperment, scatter, screaming out warnings like doomsday criers. From the water just before the bronze children rises the enormous head of the Ogopogo himself, his tongue snakes out of his mouth and his teeth reach out past his lips. He arches his spined back and pushes his head forward to me, only a few inches away, and says in an ancient din, "I'll take a few questions now."
 
