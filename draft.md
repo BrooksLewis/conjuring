@@ -36,4 +36,9 @@ I see Toth as someone who raises himself above others. That he would proclaim hi
 
 The vandalism of art is to me quite a horrendous thing.
 
+
 I walk at a brisk pace down Penticton side streets on a joyless afternoon. It's been raining all week. I was born in this city, it should feel like home, but does not. I'm here for the week to visit my Grandma, but I've taken the day to myself.
+
+Penticton; "a place to stay forever" in the Okanagan language. I love the city because of nostalgia, but I wouldn't want to stay forever. It's a popular retirement destination, probably not what the Interior Salish Okanagan people envisioned when they first settled between Skaha and Okanagan lake. The downtown area is modest, cute even: one way streets and sidewalk shops; an elderly couple holding hands steps into one of at least six thrift stores between two streets; a busker strums a guitar with a broken string at the entrance to the tunnel that connects Main street to a back alley, next to the second hand book store where I first met Kafka, Fitzgerald, and Italo Calvino.
+
+On my walk, I wind north to Okanagan lake. The beach is usually empty on rainy days, and it's nice to sit in the Penticton-Ikeda Japanese garden near the art gallery. 
