@@ -121,6 +121,36 @@ He doesn't see the point in communicating his feelings very often. I understand 
 
 But behind his nearly unbreakable mask, he is gentle and caring. He is not a psychopath in the slightest. We were discussing one day, once I had come home from work, about the importances of empathy. He says:
     
-   The death penalty is immoral, revenge is immoral, there's no point to it. If there is a guy, like a serial killer cannibal rapist kind of guy, and he's caught, and sentenced to death, then we're no better than him. He should have a choice, he could live the rest of his life away from society, like in prison or banished or something, or he could choose suicide. But taking away his right to choose, his human rights, that's basically what he did when he killed people. So we're no better. We think we are but we're not. We're all high horse people. Revenge is not justice. And even justice is questionable. It's too negative in our society. There's too much bias. If a serial-- an 'evil' guy-- if he decides to kill someone then-- Ugh, look. Anyone can do anything they want. Sometimes there's repercussions. But in nature, like animals and stuff, well. I don't know. Look. A guy kills someone and gets away with it. Eventually, most people move on. Isn't that enough? If he's caught, he should be removed, because he's dangerous, but he shouldn't be removed from LIFE. That's immoral. A pitchfork mob can't turn murder into justice. That's immoral.
+   The death penalty is immoral, revenge is immoral, there's no point to it. If there is a guy, like a serial killer cannibal       rapist kind of guy, and he's caught, and sentenced to death, then we're no better than him. He should have a choice, he could live the rest of his life away from society, like in prison or banished or something, or he could choose suicide. But taking away his right to choose, his human rights, that's basically what he did when he killed people. So we're no better. We think we are but we're not. We're all high horse people. Revenge is not justice. And even justice is questionable. It's too negative in our society. There's too much bias. If a serial-- an 'evil' guy-- if he decides to kill someone then-- Ugh, look. Anyone can do anything they want. Sometimes there's repercussions. But in nature, like animals and stuff, well. I don't know. Look. A guy kills someone and gets away with it. Eventually, most people move on. Isn't that enough? If he's caught, he should be removed, because he's dangerous, but he shouldn't be removed from LIFE. That's immoral. A pitchfork mob can't turn murder into justice. That's immoral.
    
 There are some issues I take up with this opinion of his, but I find it fascinating that he is so concerned with the morality of justice. Sometimes he gets talking and just can't stop, the floodgates open and he gets excited. But he tries very hard to never say anything if he doesn't mean it. I believe that his thoughts on morality are rooted in a deep empathy. 
+
+When he was a kid, I once saw him playing alone in the back yard. I approached him, only about eight years old myself, and watched what he was doing. He had a worm in his hands and he was pulling it in two.
+
+"You shouldn't kill bugs," I told him. "It's mean."
+
+"Worms are not bugs," he told me.
+
+"Well you shouldn't kill worms."
+
+"When you pull apart worms they don't die they just become more worms."
+
+"How do you know that?"
+
+"They keep moving. Look." He placed half a worm on the ground and we watched it writhe for a few moments.
+
+"Let's climb the cherry tree," I said.
+
+"There are worms that live in cherries and even other foods."
+
+"Oh."
+
+We spent the rest of the afternoon throwing ripe cherries at each other and when we were told to come inside we shouted at our mom, "We're worms and we live in the wild!"
+
+"Little worms don't get pizza for dinner!" she called back. We both jumped out of the tree and raced inside, stained red from head to toe with cherry juice, worms left behind.
+
+When I went to sleep that night I had a nightmare about being buried alive, which followed me into adolescence. Worms don't just become more worms. They keep writhing and sometimes regnerate because they have five hearts. The segment of the worm that includes the head may regenerate, but the rest of its body will wither, and eventually die.
+
+If I want to, I can go find a worm and split it in two. The police will not arrest me. Animal rights activists will not accuse me. Beyond the fabled Butterfly Effect, there are no immediate repercussions for killing a worm, or a fly, or a spider. At what height and weight do animals start to seem real? Then again, if I kill a deer, I am then a hunter and that is okay, as long as I am registered and approved. But if I kill a Golden Retriever, there would be an outrage. Because of this very human sense of how much killing is okay, I think what determines if a killing is okay or not is if it is conducted in *cold blood*.
+
+
